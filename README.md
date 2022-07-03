@@ -1,0 +1,1 @@
+# Implementation_OF_SCD1_INFORMATICA
